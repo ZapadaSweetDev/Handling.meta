@@ -1,3 +1,3 @@
 - 👋 Salut, c'est moi Zapada_
-- 👀 Je suis "déeloppeur" FiveM
+- 👀 Je suis "développeur" FiveM
 - 📫 Contactez moi sur discord : Zapada_#6969
